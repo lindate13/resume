@@ -77,7 +77,7 @@ Public Relations (September 2017- June 2019)
 
 -	Implemented family system to keep our members engaged which resulted in 15% increase from previous year 
 
-Skills and Knowledge 
+**Skills and Knowledge** 
 
 Skills: Microsoft office, Project Management, Scheduling/ Coordinating, Detail-oriented 
 
